@@ -16,7 +16,7 @@ October
 
 ![img_0918](https://user-images.githubusercontent.com/33582468/32693427-df8a8e72-c6f8-11e7-9247-a7b3cb20ad70.JPG)
 
-October 16th 2017 cat feces in bathroom
+### October 16th 2017 cat feces in bathroom
 ![img_0928](https://user-images.githubusercontent.com/33582468/32693421-df038d1e-c6f8-11e7-85df-2842a3c3bbf0.JPG)
 
 ## Personal Belongings and clutter in hallways and common areas
